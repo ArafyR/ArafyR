@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ArafyR
+- 👀 I’m interested in Games and Coding
+- 🌱 I’m currently learning how to code
+- 💞️ Looking for arsenal un-blatant scripts
+- 📫 How to reach me (discord - rekt_note#6468) (twitter - Rekt_Note) 
